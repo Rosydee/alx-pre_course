@@ -1,1 +1,1 @@
-My first readme
+Steph curry is the best
